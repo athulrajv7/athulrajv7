@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @athulrajv7
+- 👀 I’m interested in almost every technology
+- 🌱 I’m currently working and learning ...
+- 📫 athulrajv13@gmail.com
